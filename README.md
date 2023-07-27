@@ -3,6 +3,7 @@
 - 🌱 I’m currently looking for an IT Application Engineer (in Düren Germany)
 - 💞️ I’m looking to collaborate on IT Recruitment
 - 📫 How to reach me: Email: esg@zabair-consulting.com
+- Feel free to reach out to me for your next IT interest/opportunity
 
 
 <!---
